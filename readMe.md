@@ -1,8 +1,1 @@
-o
-lolh
-j
-aa
-well
-a
-efioajeoi
-oiejoe
+stop stalking my github, this isnt anything
